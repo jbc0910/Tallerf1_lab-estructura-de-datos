@@ -8,6 +8,8 @@
 
 **Profesor:** Fabian Ramos
 
+**Video en Youtube:** https://youtu.be/9w23LSPNiu0
+
 ---
 
 ## Descripción
